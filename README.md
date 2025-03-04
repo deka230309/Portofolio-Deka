@@ -1,0 +1,2 @@
+# Portofolio-Deka
+Portofolionya cogan
